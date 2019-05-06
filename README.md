@@ -1,1 +1,0 @@
-# Smoke_Redesign_Domer
